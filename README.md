@@ -1,5 +1,5 @@
-- Hi, I’m Mervé
-- Reach me at ; 
+- Hi, I’m Merve,
+  Reach me at ; 
   Merve.cetinkaya416@gmail.com
 
 <!---
