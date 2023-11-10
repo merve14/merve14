@@ -1,6 +1,6 @@
 - Hi, I’m Merve,
   Reach me at ; 
-  Merve.cetinkaya416@gmail.com
+ celmas.design@gmail.com
 
 <!---
 merve14/merve14 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
